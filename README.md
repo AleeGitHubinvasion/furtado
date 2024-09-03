@@ -1,2 +1,0 @@
-# furtado
-Adão patrociios
